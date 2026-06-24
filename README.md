@@ -4,7 +4,7 @@ Are Lennys clever? ![Aisha gif by Neopets](https://files.catbox.moe/pzwkvr.gif "
 
 ${\textsf{\color{#FF0064}Nooooo!!!! Aishas are much smarter!!!}}$<p>
 ${\textsf{\color{#FF0064}Byyyyyyeeeeeeee!}}$<p>
-[MY PAGE!!!](https://rentry.co/ROCKETCHU) ☆ [Send drawings :D](https://rocketchu.straw.page) ☆ [MY NEOPET'S PAGE!!](https://www.neopets.com/~kyusukii)
+[MY PAGE!!!](https://rentry.co/neopets) ☆ [Send drawings :D](https://rocketchu.straw.page) ☆ [MY NEOPET'S PAGE!!](https://www.neopets.com/~kyusukii)
 
 Sorry I cant accept neofriend requests at the moment :-( WAIT A BIT!!!
 

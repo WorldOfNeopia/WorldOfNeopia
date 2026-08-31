@@ -7,7 +7,6 @@ ${\textsf{\color{#FF0064}Byyyyyyeeeeeeee!}}$<p>
 
 [MY PAGE!!!](https://rentry.co/neopets) - [Send drawings :D](https://kacheek.straw.page)
 
-Sorry I cant accept neofriend requests at the moment :-( WAIT A BIT!!!
 
 ![Pink Aisha gif by Neopets](https://files.catbox.moe/g1hctc.gif "Pink Aisha gif by Neopets") I luv Aishas <3
 

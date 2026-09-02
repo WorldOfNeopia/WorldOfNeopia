@@ -1,13 +1,22 @@
-<img src="https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&plastic&label=pageviews" alt="pageviews thingy">
+![div](https://files.catbox.moe/6cre8n.gif)
 
-Are Lennys clever? ![Aisha gif by Neopets](https://files.catbox.moe/pzwkvr.gif "Aisha gif by Neopets")
+my name is emily ^_^ <img src="https://files.catbox.moe/avb7lw.gif" width="180" alt="Description">
 
-${\textsf{\color{#FF0064}Nooooo!!!! Aishas are much smarter!!!}}$<p>
-${\textsf{\color{#FF0064}Byyyyyyeeeeeeee!}}$<p>
+<a href="https://thebeatles.atabook.org">
+  <img src="https://files.catbox.moe/3s3671.gif" alt="atabook" width="140">
+</a>
+IM MAKING MY STRAWPAGE
 
-[MY PAGE!!!](https://rentry.co/neopets) - [Send drawings :D](https://kacheek.straw.page)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+
+<img src="https://files.catbox.moe/2whasm.gif" width="120" alt="rocker button">⠀<img src="https://files.catbox.moe/wctv5l.gif" width="120" alt="w00t! button">
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+
+<img src="https://files.catbox.moe/3nro06.png" width="161" alt="los prisioneros stamp"> <img src="https://files.catbox.moe/9oioet.jpg" width="165" alt="i love music stamp">
 
 
-![Pink Aisha gif by Neopets](https://files.catbox.moe/g1hctc.gif "Pink Aisha gif by Neopets") I luv Aishas <3
 
-[about aishas and why theyre AWESOME!!!](https://www.neopets.com/aisha/)
+<img src="https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&style=plastic&label=pageviews" alt="pageviews thingy" >⠀ ⠀⠀thank you <3
+
+![div](https://files.catbox.moe/6cre8n.gif)

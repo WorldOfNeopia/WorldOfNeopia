@@ -5,7 +5,7 @@ my name is emily ^_^ <img src="https://files.catbox.moe/avb7lw.gif" width="180" 
 <a href="https://thebeatles.atabook.org">
   <img src="https://files.catbox.moe/3s3671.gif" alt="atabook" width="140">
 </a>
-IM MAKING MY STRAWPAGE
+<- SIGN MY ATABOOK!!!
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
